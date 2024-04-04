@@ -1,0 +1,2 @@
+Sampurasun, Kuring @tawakaltakwa
+Hehe
